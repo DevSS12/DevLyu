@@ -19,20 +19,11 @@ Gosto de Criar ideias em Jogos — com código limpo, design criativo!
 
 | CPX - Cpx do Tg | Simula uma operação na Favela jogo de fps | [Ver no Roblox](https://www.roblox.com/pt/games/130753805588251/CPX-DO-TG) |
 
-
-| CMBR - Comunidade Br | Comunidade De Roleplay Para Se Divertir e Escutar Musicas | [Ver no Roblox](https://www.roblox.com/pt/games/128123414009501/Comunidade-BR-TTD-CMBr) |
-
 ===================================================================================
-
-📸 Demonstrações
-
-🎥 Confira alguns vídeos dos meus jogos no [YouTube] 
-
-=====================================================================================
 
 📫 Contato
 
 - 🌐 [Portfolio completo](https://devlyu.github.io)
-- 💌 Email: devlyu12@gmail.com
-- 💬 Discord: lyuofckz
+- 💌 Email: h4r1dad312@gmail.com
+- 💬 Discord: h4r1dad3.
 
